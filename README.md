@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @JustBe88
+- 🌱 I’m currently learning basic coding skills with the help of genAI
